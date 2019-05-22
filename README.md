@@ -27,4 +27,8 @@ I love the Saints
 the lambs will win superbowl
 add color green and red
 and color yellow
-i love my poem skills
+i love my poem skills, and the end
+because the world is coming to an end
+if we all only know
+oooh lordy
+amen
